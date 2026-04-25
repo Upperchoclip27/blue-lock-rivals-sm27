@@ -1,4 +1,4 @@
-
+Experience blue lock rivals like never before with stealth Script for blue lock rivals, the #1 Script. Includes speed and anti-ban for unbeatable
 
 
 
